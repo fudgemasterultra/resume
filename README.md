@@ -1,6 +1,6 @@
 **Michael Smith**  
 **Full Stack Software Engineer**  
-📧 michael.smith.dev@gmail.com | 📞 (276) 285-9430 | [LinkedIn](https://www.linkedin.com/in/michaelsmithdev)  
+📧 me@michaellynnsmith.com | 📞 (276) 285-9430 | [LinkedIn](https://www.linkedin.com/in/michael-lynn-smith-2021/)  
 [GitHub](https://github.com/fudgemasterultra) | [Upwork](https://www.upwork.com/freelancers/michaels6)
 
 ---
